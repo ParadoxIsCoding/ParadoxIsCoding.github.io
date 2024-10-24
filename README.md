@@ -1,1 +1,0 @@
-# ParadoxIsCoding.github.io
